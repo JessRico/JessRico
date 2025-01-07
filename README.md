@@ -1,17 +1,17 @@
 - 👋 Hi, I’m @JessRico
-- 👀  te invito a unirte a mi canal de venta contenido para adultos
-- con el fin de sasaciar esas fantasias
-- y conozcas nuevas chicas en el hambiente
-- vídeo chat videollamada hot provados pack y mucho mas
+- 👀  te invito a unirte a mi canal de contenido para adultos
+  Precentacion de las chicas 
+- chicas tripleAAA 
+- vídeo chat videollamada grupales pack Privados e información y mucho mas
 - 🌱 contenido para adultos.
-- 💞️ collaborate on ...con strimg 
+- 💞️live ek vivo ...con strimg 
 - 📫 sextin...
 - 😄 strimg ...
 - ⚡ cobtenido xxx ...
 - dejandote el linkpara q puedas aceder el costo es 200 /quinsenales
 - membresia a cliente 300 al mes participando colaborando tendras ese costo
 - estar al grupo vip de todas las chicas canal 
-- contenido explicito por mes $400  hay mismo abea contenido mas hot q nada tu escoge tu opcion 
+- mega promocion al pagar 500 mensuales servicio a mitad de precio con la chica que tu elijas suerte gracias incluye todo sin sensura  contenido mas hot q nada tu escoge tu opcion 
 - 
 
 <!---
